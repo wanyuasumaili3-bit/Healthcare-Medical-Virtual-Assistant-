@@ -8,19 +8,22 @@ Areas of Expertise:
 - Research Assistance
 - Healthcare Data Organization
 - Health Education & Patient Support
-  Tools & Systems
+  
+Tools & Systems
 - Electronic Medical Records (EMR/EHR)
 - Google Workspace
 - Microsoft Office
 - Telehealth Platforms
 - Notion / Trello / Asana
 - Data Management Tools
+
   I am open to working with:
 - Healthcare startups
 - Telehealth providers
 - Medical researchers
 - Clinics and hospitals
 - Healthcare entrepreneurs
+  
 Contact: Email- wanyuasumaili3@gmail.com/ phone- +254717455179  
 🌍 Location: Kenya  
 💼 Services: Medical Virtual Assistance | Research Support | Healthcare Administration
